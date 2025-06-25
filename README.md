@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://aw8-07.pages.dev/">暗网视频</a>
 
-点击访问：<a href="https://cg8-46.pages.dev/">新瓜</a>
+点击访问：<a href="https://cg8-46.pages.dev/">社区吃瓜 新瓜</a>
 
 点击访问：<a href="https://chiguaqunzhongde.pages.dev/">黑料吃瓜网</a>
 
